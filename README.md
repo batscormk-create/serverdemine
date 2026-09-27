@@ -1,0 +1,2 @@
+# serverdemine
+ai bolsonaro
